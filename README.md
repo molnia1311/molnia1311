@@ -1,1 +1,1 @@
-*‹simplicity deceives beginners; true mastery is automated orchestration›*
+bet i can run it better
